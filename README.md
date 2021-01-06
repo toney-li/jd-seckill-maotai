@@ -9,6 +9,8 @@
 ## 扫码进群技术交流
 - 交流微信(备注茅台)：`myfreebook`
 
+![](https://oscimg.oschina.net/oscnet/up-f26de05a3336e2654ee466f93ab9c65a551.JPEG)
+
 
 ## 优化内容
 
